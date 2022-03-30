@@ -1,3 +1,0 @@
-# Vegination
-
-Coming soon...
